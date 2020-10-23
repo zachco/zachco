@@ -6,4 +6,4 @@
 
 - **📷 I'm also a hobbyist photographer, you can see some of my work on my [photography website](https://ztc.photos) or [Instagram](https://instagram.com/ztc.jpg).**
 
-- **📨  Feel free to reach out on [Twitter](https://twitter.com/zachtco) or [LinkedIn](https://linkedin.com/in/zachtylercohen/).**
+- **📨  Feel free to connect with me on [Twitter](https://twitter.com/zachtco) or [LinkedIn](https://linkedin.com/in/zachtylercohen/).**
