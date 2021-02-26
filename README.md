@@ -2,7 +2,7 @@
 
 - **👨‍💻  I'm a product designer at [Integrate](https://www.integrate.com) working on making our data more accessible and insightful.**
 
--  **✍️  I write essays at [Interdisciple](https://interdisciple.com) and stories at [Words as Worlds](http://wordsasworlds.com).**
+-  **✍️  I write essays and fiction at [Interdisciple](https://interdisciple.com).**
 
 - **📷 I'm also a hobbyist photographer, you can see some of my work on my [photography website](https://ztc.photos) or [Instagram](https://instagram.com/ztc.jpg).**
 
