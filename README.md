@@ -4,6 +4,6 @@
 
 -  **✍️  I write essays and fiction at [Interdisciple](https://interdisciple.com).**
 
-- **📷 I'm also a hobbyist photographer, you can see some of my work on my [photography website](https://ztc.photos) or [Instagram](https://instagram.com/ztc.jpg).**
+- **📷 I'm also a hobbyist photographer, you can see some of my work on my [photography website](https://ztc.photos) or [Instagram](https://instagram.com/zchco).**
 
 - **📨  Feel free to connect with me on [Twitter](https://twitter.com/zachtco) or [LinkedIn](https://linkedin.com/in/zachtylercohen/).**
