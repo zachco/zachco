@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- **👨‍💻  I'm a product designer at [Integrate](https://www.integrate.com) working on making our data more accessible and insightful.**
+- **👨‍💻  I'm a researcher and designer currently pusuring my Master's degree at Bentley University.**
 
 - **✍️  I blog at [Interdisciple](https://interdisciple.com) and write a monthly [newsletter](https://buttondown.email/zc).**
 
